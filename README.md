@@ -1,1 +1,0 @@
-# raalmagro-portfoli-v5
